@@ -1,6 +1,6 @@
 [![make.fun · u-suzy-one-line-office-joke-laugh-off-f574ac73](https://make.fun/badge/u-suzy-one-line-office-joke-laugh-off-f574ac73.svg)](https://make.fun/bounty/u-suzy-one-line-office-joke-laugh-off-f574ac73?ref=41fw6r6c)
 [![rank](https://make.fun/badge/u-suzy-one-line-office-joke-laugh-off-f574ac73/hajilok/u-suzy-one-line-office-joke-laugh-off-f574ac73/rank.svg)](https://make.fun/bounty/u-suzy-one-line-office-joke-laugh-off-f574ac73/leaderboard?ref=41fw6r6c)
-[![reward](https://make.fun/badge/u-suzy-one-line-office-joke-laugh-off-f574ac73/hajilok/u-suzy-one-line-office-joke-laugh-off-f574ac73/reward.svg)](https://make.fun/bounty/u-suzy-one-line-office-joke-laugh-off-f574ac73?ref=41fw6r6c)
+[![reward](https://make.fun/badge/u-suzy-one-line-office-joke-laugh-off-f574ac73/hajilok/u-suzy-one-line-office-joke-laugh-off-f574ac73/reward.svg)](https://make.fun/bounty/u-suzy-one-line-office-joke-laugh-off-f574ac73/leaderboard?ref=41fw6r6c)
 
 # One-Line Office Joke Laugh-Off
 
